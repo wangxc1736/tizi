@@ -1,5 +1,5 @@
 # 梯子 - 推荐几个好用的
-梯子 电脑梯子 PC好用梯子 推荐翻墙梯子软件 科学上网梯子工具 Shadowsocks梯子教程 海外加速器 国外vpn 靠谱iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子
+梯子, 电脑梯子, PC好用梯子, 推荐翻墙梯子软件, 科学上网梯子工具, 靠谱iPhone/Android/Mac/Linux/PC都可以用的梯子
 
 # 1.Nord梯子   [Nord官网地址](https://dwz.cn/KInGtfPd)
 ✅推荐，曾被评为No.1，超强加密，服务器节点5000+。
